@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @zhuguang1
+- 👋 Hi, I’m @Polo Snow
 - 📫 How to reach me ...
 - For my blog.The two is the different.  
 my delayed blog: https://zhuguang1.github.io/zgyblog/  
